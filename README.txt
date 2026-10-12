@@ -20,7 +20,7 @@ Sigeon General Licence Agreement (SGLA) v1.2
 
 Copyright (c) 2026 Sigeon
 
-I took a cookie and license.
+I took a dookie and license.
 License say that you are not allowed to DO ANYTHING on the OS. (TRUST TRUST TRUST)
 ligma ballz.
 
